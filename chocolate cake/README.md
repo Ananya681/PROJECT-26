@@ -1,0 +1,1 @@
+This chocolate cake recipe is similar to my Yellow Cake with Chocolate Frosting in that it’s a basic recipe that everyone needs in their collection.  If you are looking for something a little more “fancy,” check out my popular German Chocolate Cake or Coconut Cake with Pineapple Filling.
